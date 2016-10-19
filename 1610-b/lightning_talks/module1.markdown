@@ -5,7 +5,7 @@ Outline:
 
 Amara Lovato: A dream travel to Spain
 
-Outline: 
+Outline: Why is it unique, Wow places and experiences, Things to know before going, Express Q&A (it would be great if people can send me some questions so I can go really quick through some of them in this part)
 
 
 Amy Kintner: An Extremely Brief Talk About Utopian History and Theory
