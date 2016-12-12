@@ -5,10 +5,10 @@ Outline:
 
 Amara Lovato:
 
-Outline:
+Outline: Do you really wanna go to a resort during your vacation?
 
 
-Andrew Wooten:Health Benefits of Eastern Spices
+Andrew Wooten:
 
 Outline:
 
@@ -92,7 +92,7 @@ Outline:
 
 
 
-Katy Farmer: How to Play the Trumpet Indoors
+Katy Farmer:
 
 Outline:
 
