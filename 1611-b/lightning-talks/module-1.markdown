@@ -5,7 +5,7 @@ Outline:
 
 Amara Lovato: Do you really wanna go to a resort for your vacation?
 
-Outline:
+Outline: https://gist.github.com/pixapi/6f476d6c8ef798e36dc82b697635a1e0
 
 
 Andrew Wooten:Health Benefits of Eastern Spices
